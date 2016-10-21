@@ -1,4 +1,4 @@
 # one-for-all
 Primary Repository
-Nothing to shar now. Come back later.
+Nothing to share now. Come back later.
 
